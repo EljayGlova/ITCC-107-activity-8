@@ -1,4 +1,4 @@
-Team Name: The Ctrl S³ : Synergistic Solutions Squad
+Team Name: GG 
 
 Members:
 
