@@ -1,4 +1,5 @@
-Team Name: GG 
+Team Name: GG - GOAL GETTER
+
 
 Members:
 
